@@ -3,18 +3,18 @@
 **Links**
 
 Music \
-⤷ [Bandcamp](tab:https://sunnythursdays.bandcamp.com) \
-⤷ [Soundcloud](tab:https://soundcloud.com/sunnythursdays) \
-⤷ [Spotify](tab:https://open.spotify.com/artist/5jIjNnDZLwobIETQa7xtPA) \
-⤷ [Apple Music](tab:https://music.apple.com/us/artist/sunnythursdays/1858830979) \
+⤷ [Bandcamp](https://sunnythursdays.bandcamp.com) \
+⤷ [Soundcloud](https://soundcloud.com/sunnythursdays) \
+⤷ [Spotify](https://open.spotify.com/artist/5jIjNnDZLwobIETQa7xtPA) \
+⤷ [Apple Music](https://music.apple.com/us/artist/sunnythursdays/1858830979)
 
 Social Media \
-⤷ [Instagram](tab:https://instagram.com/_sunnythursdays) \
-⤷ [X/Twitter](tab:https://x.com/_sunnythursdays) \
-⤷ [Youtube](tab:https://youtube.com/@thursdaymelody) \
+⤷ [Instagram](https://instagram.com/_sunnythursdays) \
+⤷ [X/Twitter](https://x.com/_sunnythursdays) \
+⤷ [Youtube](https://youtube.com/@thursdaymelody)
 
 Other \
-⤷ [itch.io](tab:https://sunnythursdays.itch.io) \
+⤷ [itch.io](https://sunnythursdays.itch.io)
 
 **Re: Contact**
 
