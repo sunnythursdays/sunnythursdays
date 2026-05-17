@@ -1,16 +1,22 @@
-## Hi there 👋
 
-<!--
-**sunnythursdays/sunnythursdays** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**Links**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Music
+⤷ [Bandcamp](tab:https://sunnythursdays.bandcamp.com) \
+⤷ [Soundcloud](tab:https://soundcloud.com/sunnythursdays) \
+⤷ [Spotify](tab:https://open.spotify.com/artist/5jIjNnDZLwobIETQa7xtPA) \
+⤷ [Apple Music](tab:https://music.apple.com/us/artist/sunnythursdays/1858830979) \
+
+Social Media
+⤷ [Instagram](tab:https://instagram.com/_sunnythursdays) \
+⤷ [X/Twitter](tab:https://x.com/_sunnythursdays) \
+⤷ [Youtube](tab:https://youtube.com/@thursdaymelody) \
+
+Other
+⤷ [itch.io](tab:https://sunnythursdays.itch.io) \
+
+**Re: Contact**
+
+the fastest way to get ahold of me is through Instagram or Twitter DMs! \
+for work-related inquiries, send it to my email: sunnythursdays at proton dot me \
