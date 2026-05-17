@@ -16,6 +16,7 @@ Social Media \
 Other \
 ⤷ [itch.io](https://sunnythursdays.itch.io)
 
+<hr/>
 
 **Re: Contact**
 
