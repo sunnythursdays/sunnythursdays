@@ -24,7 +24,7 @@ Music \
 
 Social Media \
 ⤷ [Instagram](https://instagram.com/_sunnythursdays) \
-⤷ [X/Twitter](https://x.com/_sunnythursdays) \
+⤷ [X/Twitter](https://x.com/_sunnythursdays)
 
 Other \
 ⤷ [itch.io](https://sunnythursdays.itch.io)
